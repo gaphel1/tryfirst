@@ -6,9 +6,7 @@ fdsagasdf
 
 sagd
 sfdg
-dsf
 
-sdf
 fsg
 WWWWWWS
 
